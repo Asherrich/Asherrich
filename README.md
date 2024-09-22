@@ -1,0 +1,7 @@
+- 👋 Hi there, I’m Blessing Asher Omiragi!
+- 👀 I’m interested in Creating user-centered designs that drive engagement and brand success
+- 🌱 I am a passionate UI/UX Designer and Graphic Designer with a deep love for creating clean, user-centered designs that bridge the gap between functionality and aesthetics. My goal is to design interfaces that feel effortless, delight users, and drive engagement.
+- 💞️ I'm excited to collaborate with developers, designers, and businesses on UI/UX Design for Web and Mobile Apps, Graphic Design Projects,as well as Website Design.
+- 📫 Feel free to get in touch with me through any of the following platforms: richmindblessingasher@gmail.com, https://www.linkedin.com/in/blessingasher,  https://www.instagram.com/asherichie
+- 😄 She/her
+- ⚡  I'm a huge fan of creative problem-solving—when I'm not designing, you’ll often find me brainstorming innovative solutions or exploring new tools that can help make life easier. Also, I love diving into wellness topics and learning about skin therapies in my free time!
